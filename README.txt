@@ -19,7 +19,7 @@ Location: Philadelphia, PA.
 Introduction 
 Master 
 Virtues 
-Lodge 
+Initiation 
 Geometry 
 
            Introduction 
