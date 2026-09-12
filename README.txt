@@ -16,11 +16,11 @@ Location: Philadelphia, PA.
            Contents 
            -------- 
 
-Introduction                         - 
-Master                               II. 
-Virtues                              IX. 
-Lodge                                XVIII. 
-Geometry                             XXXIV. 
+Introduction 
+Master 
+Virtues 
+Lodge 
+Geometry 
 
            Introduction 
            ------------ 
