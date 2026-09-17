@@ -81,7 +81,7 @@ the virtues as we work them.
            Candles 
 
 First, love family and friends. Second, 
-praise and respect rarity. Third, be 
+praise and protect rarity. Third, be 
 nice. Fourth, have a partner or more to 
 build or destory with. Fifth, be 
 literal. Sixth, be a caregiver. Seventh, 
